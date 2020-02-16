@@ -1,1 +1,0 @@
-# khojasteh-z
